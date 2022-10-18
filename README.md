@@ -1,2 +1,2 @@
 # yeah im
-![steion](https://i.ibb.co/QHpsgxq/20221018-140740.png)
+![steion](https://i.ibb.co/Y7TNMTX/20221018-141047.png)
