@@ -4,4 +4,4 @@
 *tg:* [@steion1337](t.me/steion1337)
 *vk:* [@bebrondiy](t.me/bebrondiy)
  
-> 16 y.o. developer. Node.js, React, vk/tg api.
+> 17 y.o. developer. Node.js, React, vk/tg api.
